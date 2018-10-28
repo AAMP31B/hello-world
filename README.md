@@ -1,1 +1,1 @@
-DELETE EVERYTHING
+All deleted.
